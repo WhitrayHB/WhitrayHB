@@ -12,7 +12,7 @@
 咕咕咕~
 
 ### Hello there!
-This is WhitrayHB!A pigeon which lives in China Sichuan.
+This is WhitrayHB! A pigeon which lives in China Sichuan.
 
 You can simply call me "Pigeon".
 
