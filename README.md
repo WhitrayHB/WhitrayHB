@@ -5,10 +5,6 @@
 
 是一个资深Minecraft玩家和菜鸡蔚蓝(Celeste)玩家，也是个福瑞
 
-会一点点Java跟C++
-
-最近在试着用Fabric写个mod来在Minecraft里还原蔚蓝
-
 咕咕咕~
 
 ### Hello there!
@@ -19,7 +15,5 @@ You can simply call me "Pigeon".
 A Minecraft player and Celeste player(noob lol),also a Furry
 
 I can do a little Java programming & C++ programming
-
-I'm trying to build Mountain Celeste in Minecraft through Fabric mod recently
 
 Gugugu~
