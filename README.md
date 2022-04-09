@@ -5,6 +5,8 @@
 
 是一个资深Minecraft玩家和菜鸡蔚蓝(Celeste)玩家，也是个福瑞
 
+会一点点Java和C++
+
 咕咕咕~
 
 ### Hello there!
