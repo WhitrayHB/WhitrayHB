@@ -12,9 +12,9 @@
 ### Hello there!
 This is WhitrayHB! A pigeon which lives in China Sichuan.
 
-You can simply call me "Pigeon".
+You can simply call me "WhitrayHB"or"Pigeon".
 
-A Minecraft player and Celeste player(noob lol),also a Furry
+A Minecraft player and Celeste player(noob lol), also a Furry
 
 I can do a little Java programming & C++ programming
 
