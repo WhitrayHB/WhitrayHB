@@ -39,3 +39,7 @@ You can find me in following ways:
 - GitHub Don't joking, you are now looking at it!
 - Hypixel /f WhitrayHB
 - And so on...
+
+![](https://github-readme-stats.vercel.app/api?username=WhitrayHB&show_icons=true)
+
+![](https://github-readme-stats.vercel.app/api/top-langs/?username=WhitrayHB&layout=compact)
