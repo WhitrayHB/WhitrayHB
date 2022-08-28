@@ -15,6 +15,7 @@
 - QQ：[鸽子窝](https://jq.qq.com/?_wv=1027&k=mTD7uxNo)(2076019711)/NLR Group(182850795)
 - [Twitter](https://twitter.com/WhitrayHB) @WhitrayHB (不定时出没)
 - [Bilibili](https://space.bilibili.com/673765281) @不咕鸽WhitrayHB
+- [NLR DevTeam](https://nlrdev.top)
 - Steam (1069259955) @WhitrayHB
 - Arcaea (621525603) (已满)
 - GitHub 开什么玩笑，你正在看呢！
@@ -38,6 +39,7 @@ You can find me by following ways:
 - QQ：[鸽子窝](https://jq.qq.com/?_wv=1027&k=mTD7uxNo)(2076019711)/NLR Group(182850795)
 - [Twitter](https://twitter.com/WhitrayHB) @WhitrayHB (Not very often)
 - [Bilibili](https://space.bilibili.com/673765281) @不咕鸽WhitrayHB
+- [NLR DevTeam](https://nlrdev.top)
 - Steam (1069259955) @WhitrayHB
 - Arcaea (621525603) (Full)
 - GitHub Don't joking, you are now looking at it!
