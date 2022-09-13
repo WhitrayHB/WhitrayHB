@@ -52,3 +52,4 @@ You can find me by following ways:
 
 ### 投喂/Sponsor me!
 ### [爱发电/Afdian](https://afdian.net/@whitrayhb)
+<a href="https://afdian.net/@whitrayhb"><img style="height:20%;width:20%;" src="https://cdn.hyh.ink/imger/2022/09/12/support-me-on-afd-93cb00b36b5f9c74.png" alt="Support Me."/></a>
