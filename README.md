@@ -3,11 +3,11 @@
 
 你可以直接叫我鸽子，也可以帮我想一想该怎么翻译这个名字比较好
 
-是一个资深Minecraft玩家和菜鸡蔚蓝(Celeste)玩家，也是个福瑞，会一点点Java和C++，想用自己的技能接单但是没有头绪……
+是一个资深Minecraft玩家和菜鸡蔚蓝(Celeste)和blabla一大堆游戏的玩家，也是个福瑞刀客塔，会一点点Java和C++和前端，想用自己的技能接单但是没有头绪……
 
-欢迎赠图（[这是设定](https://github.com/WhitrayHB/WhitrayHB/blob/main/WhitrayHB/WhitrayHB.png)）和投喂~ 也可以让我帮帮忙，只要我能帮得上的话()
+欢迎赠图（[这是设定](https://github.com/WhitrayHB/WhitrayHB/blob/main/WhitrayHB/WhitrayHB.png)）和投喂~ 也可以让我帮帮忙，只要我能帮得上的话x
 
-在攒钱买屏幕（这边只有一块1366*768）、约稿、买各种材料（计划DIY风扇和U盘和自己做装啥的）……所以如果能[投喂](https://github.com/WhitrayHB#%E6%8A%95%E5%96%82sponsor-me)一点鸽粮的话我会肥肠高兴的！
+在攒钱买相机、约稿、买各种材料（计划DIY风扇和U盘和自己做装啥的）……所以如果能[投喂](https://github.com/WhitrayHB#%E6%8A%95%E5%96%82sponsor-me)一点鸽粮的话我会肥肠高兴的！
 
 咕咕咕~
 
