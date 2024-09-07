@@ -12,7 +12,7 @@
 咕咕咕~
 
 你可以在这里找到我：
-- QQ：[鸽子窝](https://jq.qq.com/?_wv=1027&k=mTD7uxNo)(2076019711)/NLR Group(182850795)
+- QQ：鸽子窝(2076019711)/NLR Group(182850795)
 - [Twitter](https://twitter.com/WhitrayHB) @WhitrayHB (不定时出没)
 - [Bilibili](https://space.bilibili.com/673765281) @不咕鸽WhitrayHB
 - [NLR DevTeam](https://nlrdev.top)
